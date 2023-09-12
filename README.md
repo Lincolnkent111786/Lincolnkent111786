@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lincolnkent111786
+- 👀 I’m interested in sport/gaming
+- 🌱 I’m currently learning how to code a game and more
+- 💞️ I’m looking to collaborate on coding and gaming 
+- 📫 How to reach me Lincolnkent2008@hotmail.com
